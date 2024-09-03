@@ -12,4 +12,4 @@
 ◦ 📫 How to reach me: https://www.linkedin.com/in/robertaldixon/ or by email at robmsc24@gmail.com
 
 ◦ ⚡ Fun fact about me: Being a Merchant Mariner for 10 years allowed me to travel and visit about 30 different countries throughout Asia, Europe, Africa and the Middle 
-   East. My favorite countries so far being Japan and Thailand.
+      East. My favorite countries so far being Japan and Thailand.
